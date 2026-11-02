@@ -1,6 +1,6 @@
-# Arrow Escape: Shape Puzzle – Privacy Policy
+# Arrow Escape: Shape Reveal – Privacy Policy
 
-Privacy policy for the Arrow Escape: Shape Puzzle Android app by SabalApps.
+Privacy policy for the Arrow Escape: Shape Reveal Android app by SabalApps.
 
 Published at: https://sabalsss.github.io/ArrowEscape-PrivacyPolicy/
 
